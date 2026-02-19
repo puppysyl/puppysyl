@@ -1,1 +1,3 @@
-remaking
+![](https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s2048x3072/d8bde73a8813189654996f53a4b8866b39f92ae4.pnj)
+![](https://64.media.tumblr.com/bdfed212d092ee15782c257fd61c83e7/255d765ef3a65176-c1/s2048x3072/ee7db6ec142930f17e505a3a6b7e9b5966acd9f0.gifv)
+huge wip
